@@ -7,3 +7,5 @@ Mufiidah Nuzuluddin Febrianty        XI RPL 1
 Almayra Nujazzmine Dipoatmodjo       XI RPL 2
 Jevinson Imanuel Peuru               XI RPL 1
 Andi Muhammad Arrayyan               XI RPL 4
+
+Mana progres kelompok ini saya tidak melihat aktifivitas di github ini
